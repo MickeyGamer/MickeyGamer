@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @MickeyGamer
+- 👋 Hi, I’m Michael
 - 👀 I’m interested in Reading, Philosophy, Science, Knowledge and Thinking
 - 🌱 I’m currently learning Cybersecurity 
 - 💞️ I’m looking to collaborate on ...dunno man
